@@ -1,0 +1,3 @@
+salom
+xayr
+fris
